@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @IsabeleLira
+- 👀 I’m interested in recruitment and selection
+- 🌱 I’m currently learning Spanish and English
+- 💞️ I’m looking to collaborate on with perfect matches
+- 📫 How to reach me https://www.linkedin.com/in/isabele-lira-620121125/
